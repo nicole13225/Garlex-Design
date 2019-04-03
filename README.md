@@ -1,2 +1,2 @@
 # Garlex-Design
-A new brando of clothes
+A new brand of clothes
